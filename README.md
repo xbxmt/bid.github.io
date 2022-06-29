@@ -3,7 +3,7 @@
 * [赵晓：冷析彼岸热选](https://www.asuswebstorage.com/navigate/a/#/s/015913F2EE7D46D1B93BB061E080F7E0Y)
 ---
 * [赵晓：冷观彼岸热选](https://www.asuswebstorage.com/navigate/a/#/s/B9FE85544C474F678D354E70A1A77525Y)
- ---
+---
 * [赵晓：美元看空与看多](https://www.asuswebstorage.com/navigate/a/#/s/302F7693EB6B41B5AA7F3D03A955022CY)
 ---
 * [赵晓：尼布甲尼撒陷阱（上）](https://www.asuswebstorage.com/navigate/a/#/s/0CE34ADDAB144B41A5E2234AA7FD58BAY)
